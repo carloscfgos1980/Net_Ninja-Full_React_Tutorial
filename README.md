@@ -105,7 +105,7 @@ https://www.youtube.com/watch?v=EcRFYF4B3IQ&list=PL4cUxeGkcC9gZD-Tvwfod2gaISzfRi
 
 https://www.youtube.com/watch?v=TmVqwhBUiSM&list=PL4cUxeGkcC9gZD-Tvwfod2gaISzfRiP9d&index=30
 
-5. # 31 - Deleting Blogs
+5. Lesson # 31 - Deleting Blogs
 
 https://www.youtube.com/watch?v=Wb-0CkLiyQk&list=PL4cUxeGkcC9gZD-Tvwfod2gaISzfRiP9d&index=31
 
